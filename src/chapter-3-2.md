@@ -3,27 +3,27 @@ Establishing a Routine and Schedule
 
 Managing time and priorities is critical in remote work to ensure productivity and success. In this chapter, we will explore strategies for establishing a routine and schedule to manage time and priorities effectively.
 
-Section 1: Establishing a Routine
+Establishing a Routine
 ---------------------------------
 
 Establishing a routine can help remote workers create structure and consistency in their workday. This may include setting regular working hours, scheduling breaks and exercise into your routine, and establishing a morning routine to start the day on the right foot.
 
-Section 2: Creating a Schedule
+Creating a Schedule
 ------------------------------
 
 Creating a schedule can help remote workers manage their time effectively and ensure that tasks are completed on time. This may include setting deadlines for tasks and projects, prioritizing tasks based on their importance and urgency, and using digital tools such as calendars or project management software to stay organized.
 
-Section 3: Identifying Productivity Killers
+Identifying Productivity Killers
 -------------------------------------------
 
 Identifying productivity killers can help remote workers avoid distractions and stay focused on their goals. This may include identifying activities or habits that tend to distract you, such as checking social media during work hours, and finding ways to eliminate or minimize these distractions.
 
-Section 4: Communicating Boundaries with Colleagues
+Communicating Boundaries with Colleagues
 ---------------------------------------------------
 
 Communicating boundaries with colleagues can help remote workers establish expectations and prevent work from spilling over into personal time. This may include setting clear working hours, avoiding checking emails or responding to work-related messages outside of designated working hours, and communicating availability for meetings or other work-related activities.
 
-Section 5: Prioritizing Self-Care
+Prioritizing Self-Care
 ---------------------------------
 
 Prioritizing self-care is critical in remote work to maintain overall well-being and prevent burnout. This may include prioritizing sleep, exercise, and healthy eating, as well as practicing mindfulness or meditation to manage stress.
