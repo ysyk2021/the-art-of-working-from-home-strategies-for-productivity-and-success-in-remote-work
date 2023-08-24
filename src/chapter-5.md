@@ -1,5 +1,3 @@
-Chapter 5: Maintaining Focus and Motivation in Remote Work
-==========================================================
 
 Working from home can be challenging when it comes to maintaining focus and motivation. In this chapter, we will explore strategies for staying on-task and motivated while working remotely.
 

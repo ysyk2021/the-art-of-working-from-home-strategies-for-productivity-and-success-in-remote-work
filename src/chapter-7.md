@@ -1,5 +1,3 @@
-Chapter 7: Building and Maintaining Relationships in Remote Work
-================================================================
 
 Remote work can present challenges when it comes to building and maintaining relationships with colleagues. In this chapter, we'll explore strategies for developing strong relationships in remote work.
 

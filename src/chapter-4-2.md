@@ -1,5 +1,3 @@
-Using Technology to Stay Connected with Colleagues
-===================================================================================================
 
 Effective communication is critical in remote work, and technology plays a significant role in facilitating that communication. In this chapter, we will explore strategies for using technology to stay connected with colleagues in remote work.
 

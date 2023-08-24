@@ -1,5 +1,3 @@
-Chapter 6: Balancing Work and Life in Remote Work
-=================================================
 
 Maintaining a healthy work-life balance is essential for success and well-being in remote work. In this chapter, we will explore strategies for balancing work and life while working remotely.
 

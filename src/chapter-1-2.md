@@ -1,5 +1,3 @@
-Historical Perspectives on Remote Work Theory and Practice
-========================================================================================================
 
 Working from home, also known as remote work or telecommuting, has a long history that dates back to the Industrial Revolution. In this chapter, we will explore historical perspectives on remote work theory and practice.
 

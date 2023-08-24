@@ -1,5 +1,3 @@
-Establishing Boundaries and Limits
-=====================================================================================
 
 Working from home offers many benefits, including increased flexibility and autonomy. However, it can also blur the lines between work and personal life, making it difficult to establish boundaries and limits. In this chapter, we will explore strategies for balancing work and life in remote work by establishing boundaries and limits.
 

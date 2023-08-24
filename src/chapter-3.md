@@ -1,5 +1,3 @@
-Chapter 3: Managing Time and Priorities in Remote Work
-======================================================
 
 Remote work can offer flexibility, but it also requires effective time management and prioritization skills. In this chapter, we'll explore techniques for managing time and priorities in remote work.
 

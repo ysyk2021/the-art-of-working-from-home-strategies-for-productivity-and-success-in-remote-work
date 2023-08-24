@@ -1,5 +1,3 @@
-Creating a Designated Workspace
-==========================================================================
 
 Creating a designated workspace is critical in remote work to maintain productivity and focus. In this chapter, we will explore strategies for creating a designated workspace in your home.
 

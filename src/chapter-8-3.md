@@ -1,5 +1,3 @@
-Building Resilience and Managing Stress During Uncertain Times
-=======================================================================================================================
 
 Remote work can present unique challenges during times of uncertainty, such as the COVID-19 pandemic. In this chapter, we will explore strategies for building resilience and managing stress during uncertain times.
 

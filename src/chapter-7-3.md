@@ -1,5 +1,3 @@
-Encouraging Open Communication and Constructive Feedback
-==========================================================================================================================
 
 Building and maintaining relationships is critical in remote work to promote collaboration, communication, and a sense of community. In this chapter, we will explore strategies for encouraging open communication and constructive feedback among remote colleagues.
 

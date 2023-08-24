@@ -1,5 +1,3 @@
-Developing Strategies for Managing Isolation, Burnout, and Other Stressors
-===================================================================================================================================
 
 Remote work can present unique challenges, including the potential for isolation, burnout, and other stressors. In this chapter, we will explore strategies for overcoming these common challenges in remote work.
 

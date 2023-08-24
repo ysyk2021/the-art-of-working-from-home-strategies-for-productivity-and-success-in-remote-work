@@ -1,5 +1,3 @@
-Chapter 2: Setting up Your Home Workspace
-=========================================
 
 Working from home can be challenging, but with the right strategies and tools in place, it can also be incredibly productive and rewarding. In this chapter, we will explore the key elements of setting up an effective home workspace.
 

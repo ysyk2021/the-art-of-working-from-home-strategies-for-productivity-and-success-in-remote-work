@@ -1,4 +1,3 @@
-# Offering Constructive Feedback and Recognition
 
 Effective feedback and recognition are essential components of a successful remote work environment. Providing constructive feedback helps individuals grow and improve, while recognition boosts morale and motivation. In this chapter, we will explore strategies for offering constructive feedback and recognition in the context of remote work.
 
