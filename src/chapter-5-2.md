@@ -1,5 +1,4 @@
-Chapter 4: Staying Organized and Minimizing Distractions
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Working from Home: Strategies for Productivity and Success in Remote Work," we will explore the importance of staying organized and minimizing distractions to enhance productivity and focus while working remotely.
 

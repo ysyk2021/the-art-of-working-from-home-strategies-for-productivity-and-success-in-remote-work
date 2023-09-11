@@ -1,5 +1,4 @@
-Chapter 6: Building Resilience and Managing Stress During Uncertain Times
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Working from Home: Strategies for Productivity and Success in Remote Work," we will explore techniques for building resilience and managing stress during uncertain times. The ability to adapt, stay resilient, and effectively handle stress is crucial for maintaining productivity and well-being in the face of uncertainty.
 

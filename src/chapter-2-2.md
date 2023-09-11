@@ -1,5 +1,4 @@
-Chapter 3: Creating a Designated Workspace
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Working from Home: Strategies for Productivity and Success in Remote Work," we will explore the importance of creating a designated workspace for optimal productivity. Having a dedicated area specifically designed for work helps establish boundaries, mental focus, and efficiency in remote work.
 

@@ -1,5 +1,4 @@
-Chapter 3: Establishing a Routine and Schedule
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Working from Home: Strategies for Productivity and Success in Remote Work," we will explore the importance of establishing a routine and schedule for effective remote work. Having a structured daily routine helps create a sense of normalcy, improves productivity, and enhances work-life balance.
 

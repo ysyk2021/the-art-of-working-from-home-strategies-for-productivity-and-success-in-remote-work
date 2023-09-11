@@ -1,5 +1,4 @@
-Chapter 6: Using Technology to Stay Connected with Colleagues
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Working from Home: Strategies for Productivity and Success in Remote Work," we will explore the importance of using technology to stay connected with colleagues while working remotely. Technology plays a vital role in fostering collaboration, communication, and maintaining strong professional relationships in a virtual work environment.
 

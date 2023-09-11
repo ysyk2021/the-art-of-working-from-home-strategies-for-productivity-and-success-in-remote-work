@@ -1,5 +1,4 @@
-Chapter 4: Selecting Equipment and Tools for Optimal Productivity
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Working from Home: Strategies for Productivity and Success in Remote Work," we will explore the importance of selecting the right equipment and tools to enhance productivity while working remotely. The right setup can significantly impact your efficiency, focus, and overall work performance.
 

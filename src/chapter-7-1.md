@@ -1,5 +1,4 @@
-Chapter 6: Developing Strategies for Building and Maintaining Relationships in Remote Work
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Working from Home: Strategies for Productivity and Success in Remote Work," we will explore the importance of developing strategies for building and maintaining relationships in a remote work environment. Strong professional relationships are essential for collaboration, support, and a sense of connection while working remotely.
 

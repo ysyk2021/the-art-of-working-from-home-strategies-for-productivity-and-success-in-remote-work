@@ -1,5 +1,4 @@
-Chapter 4: Establishing Boundaries and Limits
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter of "The Art of Working from Home: Strategies for Productivity and Success in Remote Work," we will explore the importance of establishing boundaries and limits to maintain a healthy work-life balance and optimize productivity. Remote work can blur the lines between professional and personal life, making it crucial to set clear boundaries and establish limits that allow for focused work and time for personal well-being.
 
